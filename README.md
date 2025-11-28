@@ -1,0 +1,1 @@
+# synedica.github.io
