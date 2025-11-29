@@ -1,1 +1,1 @@
-# synedica.github.io
+# neopharme.github.io
